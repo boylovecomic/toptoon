@@ -4,8 +4,6 @@
 
 # 年度最佳无删减toptoon韩漫
 
-https://toptoons.cfd
-
 https://toptoons.store
 
 https://toptoons.sbs
