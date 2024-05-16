@@ -4,8 +4,8 @@
 
 # 年度最佳无删减toptoon韩漫
 
-https://toptoons.store
+https://toptoons.cyou
 
-https://toptoons.sbs
+https://toptoons.online
 
 https://toptoons.click
